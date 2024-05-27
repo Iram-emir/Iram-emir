@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <img src="https://i.ibb.co/xMHwLQT/Whats-App-Image-2024-05-28-at-02-21-44-95350c10.jpg" width="150" height="150" alt="Iram Jabeen">
+  <img src="https://i.postimg.cc/23NpsTNp/new.avif" width="626" height="351" alt="Iram Jabeen">
 </p>
 
 ## About Me
